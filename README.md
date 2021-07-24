@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tjpain13
+- 👀 I’m interested in making a difference in the world
+- 🌱 I’m currently learning as much as possible
+- 💞️ I’m looking to collaborate on anything, potentially
+- 📫 How to reach me ...
