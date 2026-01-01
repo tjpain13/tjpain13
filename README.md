@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tjpain13
 - 👀 I’m interested in making a difference
-- 🌱 I’m currently learning as much as possible
-- 💞️ I’m looking to collaborate on anything, potentially
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me ...
